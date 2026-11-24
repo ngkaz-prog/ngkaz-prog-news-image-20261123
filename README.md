@@ -1,0 +1,1 @@
+# ngkaz-prog-news-image-20261123
